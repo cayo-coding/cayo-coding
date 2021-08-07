@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cayo-coding
+- 👀 I’m interested in coding, music and video games
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on multiple and various projects
+- 📫 How to reach me: qais.albalushi96@gmail.com
